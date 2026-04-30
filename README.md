@@ -1,0 +1,1 @@
+BAD IDEA DON'T TRY 💔💔💔
